@@ -1,2 +1,4 @@
-# Funny-soccer-cat-stickers
-Funny soccer cat stickers
+재미있는 축구 고양이 스티커
+
+재미있는 축구 고양이 스티커는 휴대 전화 이모티콘 소프트웨어로, 여기서 자세히 설명하고 언제든지 표현을 공유 할 수 있습니다 iMessage 채팅은 더 이상 단조롭고 흥미있는 파트너가 아니므로 다운로드하여 사용하십시오!
+재미있는 축구 고양이 스티커에 대해 궁금한 점이 있으면 kimminwoo@gmail.com으로 연락하십시오.
